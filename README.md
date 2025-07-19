@@ -38,7 +38,6 @@ A compelling cover makes all the difference. Our designs help:
 -Team PixeL24×8
 
 
-reel_covers_readme_path
 
 
 
